@@ -106,5 +106,32 @@ Isaacs believes Kahn would be pleased. He served his country and now, through hi
 
 Feature illustration by Anna Godessi.
 
-Reference:   
-https://www.indianapolismonthly.com/longform/one-in-a-million/
+References:   
+
+* https://www.indianapolismonthly.com/longform/one-in-a-million/
+* https://www.youtube.com/watch?v=yFsRmNvGwRg
+
+### Letter to Stewart
+
+December 18, 2023
+
+Stewart,
+
+Enjoyed our talk yesterday, thanks for calling me to check in...
+
+I read the article you sent me in its entirety which is rare for me because
+I usually get bored with longer articles which indeed it was.
+
+But I read every word and loved the story.
+
+Its a classic, and clearly had a very happy ending...
+
+With stories like these I usually reference and make a copy just in case
+in the future the original website goes down I still want a copy.
+
+This is one of those articles to save.
+
+Happy Birthday and Happy Holidays.
+
+Love,
+Rick alias Sarge
