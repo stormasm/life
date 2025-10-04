@@ -155,3 +155,5 @@ Editors’  note: After the print version of this story was published, this vers
 ### Reference
 
 - [smithsonian magazine](https://www.smithsonianmag.com/arts-culture/two-years-cormac-mccarthys-death-rare-access-to-personal-library-reveals-man-behind-myth-180987150/)
+
+- [The Remarkable Influence of ‘A Wrinkle in Time’](https://www.smithsonianmag.com/arts-culture/remarkable-influence-wrinkle-in-time-180967509/)
