@@ -10,3 +10,7 @@ Spanish Learning in English
 https://www.youtube.com/@QrooSpanish/videos
 
 https://www.youtube.com/@ButterflySpanish/videos
+
+### Random Spanish Notes
+
+https://github.com/stormasm/spanish
