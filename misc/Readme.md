@@ -1,4 +1,4 @@
 
-Some notes on Rust and Spanish.
+Some notes on [Rust](./rust.md) and [Spanish](./spanish.md).
 
 Enjoy !
