@@ -8,7 +8,7 @@ This is a [temp note](https://github.com/stormasm/ptme/blob/main/misc/flickr-pri
 
 Note all of these photos on Google Photos only take up 0.39 Gb
 
-- 55 July 18, 2021
+- `55` July 18, 2021
 - 56 Oct 2, 2021
 - 57 Nov 20, 2021
 - 58 March 24, 2022
