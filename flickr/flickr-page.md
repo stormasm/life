@@ -1,6 +1,16 @@
 
 
-Flickr Page Numbers for the Archival Process
+Start with `data-download-55` and go up from there to fill in the gaps.
+These photos start at the end of May 2021 and go up to present day.
+
+So you have to share the data from its original location
+on google drive to the account
+where you want to bring in the photos.
+
+
+
+
+### Flickr Page Numbers for the Archival Process
 
 - page 310 First Page of Flickr in Reverse Order
 - page 308 Italy 2006
@@ -19,6 +29,13 @@ Flickr Page Numbers for the Archival Process
 - page 150 July 2015
 - page 100 October 2017
 - page 50 August 2020
+- page 31 August - September 2021
+- page 30 Sep 2021
+- page 25 Nov 2021
+- page 20 March 2022
+- page 15 September 2022
+- page 10 April 2023
+
 
 ### Flickr Categories
 
