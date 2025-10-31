@@ -2,10 +2,7 @@
 
 ### Accounts where the copy process has been completed
 
-This is a temp note that will be deleted and moved to a more permanent
-location
-
-
+This is a [temp note](https://github.com/stormasm/ptme/blob/main/misc/flickr-private.md) that will be deleted and moved to a more permanent location that is not public facing.
 
 ### Final upload of images to Google Photos from static flickr download files
 
