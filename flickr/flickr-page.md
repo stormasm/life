@@ -1,14 +1,31 @@
 
 
+### Accounts where the copy process has been completed
+
+This is a temp note that will be deleted and moved to a more permanent
+location
+
+
+
+### Final upload of images to Google Photos from static flickr download files
+
+Note all of these photos on Google Photos only take up 0.39 Gb
+
+- 55 July 18, 2021
+- 56 Oct 2, 2021
+- 57 Nov 20, 2021
+- 58 March 24, 2022
+- 59 October 23, 2022
+- 60 April 21, 2023
+- 61 March 31, 2024
+- 62 present day; 408 photos uploaded
+
 Start with `data-download-55` and go up from there to fill in the gaps.
 These photos start at the end of May 2021 and go up to present day.
 
 So you have to share the data from its original location
 on google drive to the account
 where you want to bring in the photos.
-
-
-
 
 ### Flickr Page Numbers for the Archival Process
 
