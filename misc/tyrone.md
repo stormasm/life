@@ -1,5 +1,5 @@
 
-### 7/18/26 Saturday
+### 7/18/26 Saturday Day 2
 
 - Race Status	Active
 - Last Update Rec'd	09:09:15 PM (PDT) 07/18/26
@@ -15,3 +15,9 @@
 - Next waypoint	Moss Pass
 - Distance to next waypoint	6.3 mi
 - Est. arrival at waypoint	01:49:46 AM (PDT) 07/25/26
+
+
+### Ref
+
+- [tyrone trackleaders](https://trackleaders.com/timbertrail26i.php?name=Tyrone_Hall)
+- [oregon timber trail](https://oregontimbertrail.org/)
