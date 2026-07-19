@@ -21,4 +21,5 @@
 
 - [tyrone trackleaders](https://trackleaders.com/timbertrail26i.php?name=Tyrone_Hall)
 - [oregon timber trail](https://oregontimbertrail.org/)
+- [Bikepacking the Oregon Timber Trail (OTT 700)](https://www.youtube.com/watch?v=47KXl89bLQ0)
 - [youtube video 1](https://www.youtube.com/watch?v=i-u1_IZA19M)
