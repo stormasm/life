@@ -1,5 +1,5 @@
 
-### 7/18/26
+### 7/18/26 Saturday
 
 - Race Status	Active
 - Last Update Rec'd	09:09:15 PM (PDT) 07/18/26
