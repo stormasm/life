@@ -43,3 +43,5 @@ In 2024, Buffett announced his plans to cut off donations to the Gates Foundatio
 "My children are unfortunately growing older. I have every hope that the three of them are able to carry out the disposal of my shares by December 31, 2034," he wrote in a press release.
 
 This story was originally featured on Fortune.com
+
+- [Ref](https://finance.yahoo.com/markets/stocks/articles/warren-buffett-says-147-billion-070000889.html)
