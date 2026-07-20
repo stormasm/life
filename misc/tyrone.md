@@ -1,4 +1,21 @@
 
+### 7/19/26 Sunday Day 3 - Paisley to restock for food ?
+
+- Race Status	Active
+- Last Update Rec'd	03:54:15 PM (PDT) 07/19/26
+- Current speed	0.1 mph
+- Route mile	Off Route
+- Elevation Gain	10733 ft
+- Current Elevation	5906 ft
+- Route average speed	1.6 mph
+- Route distance per day	38.8 mi
+- Moving Time	0d19h04m
+- Stopped Time	1d13h51m
+- Moving Average Speed	4.8 mph
+- Next waypoint	Bear Creek
+- Distance to next waypoint	3.0 mi
+- Est. arrival at waypoint	11:23:57 PM (PDT) 07/25/26
+
 ### 7/18/26 Saturday Day 2
 
 - Race Status	Active
