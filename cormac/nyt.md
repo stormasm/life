@@ -26,12 +26,6 @@ He was longtime friends with the actor Stacy Keach (both liked shooting pool) an
 
 He was a dandy. One woman reports that, more than a week into a long river-rafting trip, he would still “emerge from the tent like he was in GQ magazine.” He was a sophisticated man whose friends needled him for his terrible taste in art. At the Santa Fe Institute, the interdisciplinary research center where McCarthy spent a lot of time later in his life, mingling with scientists and naturalists, he’d bring back cheap prints from Hobby Lobby and tack them on the walls.
 
-Editors’ Picks
-From Love and Pain, Game-Changing Art
-When It Comes to Fashion, You Can’t Always Believe Your Eyes
-‘S.N.L.’ Offers Last-Minute Promo Help to Trump and Hegseth
-
-
 McCarthy had a pitch-black worldview. It’s never been hard to imagine him as a political conservative, but Daugherty brings the receipts. McCarthy had American flag bumper stickers on his trucks — one also had a nationalistic “Power of Pride” sticker — and watched “Yellowstone,” a TV show that emphasized rugged individualism, property rights and gun ownership. He joined the Republican National Committee and read The Spotlight, a magazine known for promulgating right-wing conspiracy theories.
 
 There’s an interesting detour in which Daugherty, leaning on McCarthy scholarship, argues that Marjorie Kinnan Rawlings’s novel “The Yearling” (1938), about a boy in rural Florida who’s forced to shoot the orphaned pet fawn he’s adopted, is a key that helps unlock many of the themes in McCarthy’s novels.
