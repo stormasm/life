@@ -6,14 +6,16 @@ Does Greatness Require an Ego and a Work Ethic Like Cormac McCarthy’s?
 
 A new biography of the late novelist details his youthful escapades, messy relationships and intense commitment to his craft.
 
-By Dwight Garner
-Oct. 5, 2026, 5:03 a.m. ET
+By Dwight Garner   
+Oct. 5, 2026   
+5:03 a.m. ET
 
 CORMAC McCARTHY: A Legacy Revisited, by Tracy Daugherty
 
 There’s a deep, lonely commitment to work displayed in Tracy Daugherty’s biography of Cormac McCarthy, who died in 2023. McCarthy often wrote in bed, balancing his typewriter on a piece of wood in his lap, and he didn’t like to be disturbed.
 
 He didn’t stay in bed all the time. His life, in this telling, was also packed with cars, cheap hotel rooms, interstates, young women, crazy friends, dive bars, and wives and children left behind, not necessarily in that order. If his life were a stock car, one side would have a dull matte finish and the other would have flames running down the side.
+
 This is the first full-dress biography we’ve had of this reclusive writer, the author of “Blood Meridian,” “All the Pretty Horses,” “No Country for Old Men” and “The Road,” among others, but it won’t be the last. Indeed, Laurence Gonzales’s McCarthy bio, “Isolato,” is scheduled to be published next spring.
 
 Daugherty is a prolific literary biographer (Donald Barthelme, Joan Didion and Larry McMurtry are among his subjects), and his book is good enough, at least for a first crack at McCarthy. It divulges a lot of new information, dispels myths, has strong set pieces and does a bloodhound’s job of tracing the overlaps between the life and the work.
