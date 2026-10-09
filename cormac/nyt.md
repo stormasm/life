@@ -66,4 +66,4 @@ CORMAC McCARTHY: A Legacy Revisited | By Tracy Daugherty | St. Martin’s | 514 
 
 Dwight Garner has been a book critic for The Times since 2008, and before that was an editor at the Book Review for a decade.
 
-- [Ref](https://archive.ph/77Goz#selection-4609.0-4639.112)
+- [Ref](https://archive.ph/77Goz)
