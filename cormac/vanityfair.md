@@ -298,55 +298,128 @@ I’m prejudiced? Mebbe. I know that I love you. Goodnight sweet love.
 
 
 I’ve been asking myself if I am reading this right for most of my efforts with McCarthy’s penmanship. But at these passages—and many others—the question takes on a whole other meaning. For many of these letters were written to a teenage girl—before they had run off together, before they had consummated. McCarthy admits in one that these amorous spiralings (in which he begins to iridesce into a Suttree-esque breathlessness) are just, for the time being, “fantasies.”
+
 I ask Britt about it during a round of target practice. She’s insisted on getting me up to speed on the Byrna, a nonlethal self-defense firearm legal in every state without a permit. We’ve driven to a quiet park right off a bike trail, and Britt’s picked out a nice big sign across the trail above a wash, one of the many dried, ancient riverbeds in town that carry the runoff of rainstorms. She walks to the sign, checks for oncoming cyclists, and I aim for “Tucson.”
+
 “Dang, you’re a good shot!”
+
 “Hey, thanks. Did Cormac ever shoot?”
+
 “No, not that I ever saw. But he loved to buy them for me.” Which is true. Her gun safe includes a long-barreled Taurus Judge revolver (“Every girl should have one!”) and a 12-gauge shotgun (“The perfect gift for the suicidal girlfriend!”), to name just a few of his affectionate purchases.
+
 “So, those letters.”
+
 “Oh, yes, what did you make of them?”
+
 “Well, he writes of you so…erotically. But you hadn’t actually become intimate yet, right?”
+
 “Yeah, so…that’s hard to explain.”
+
 But before she can finish, we hear a booming voice. We look at each other quizzically, not sure where it’s coming from or what it’s saying.
+
+
 “Stand up and fucking show yourselves! Fuckin’ shootin’ at us! Show yourselves!”
+
 It’s coming from down in the wash. Our mouths drop into gaping, shocked smiles, and we hightail it to Britt’s Escalade.
-Mexico remains the romance’s period of paradise. As Michael Cameron describes it, “The two disappeared into love land.” In May 1977, she and McCarthy traveled along the path of Blood Meridian, the novel he was researching at the time and which, though it was published largely to silence in 1985, is now considered one of the greatest novels of the 20th century. They began in Juarez and made deep inroads into Chihuahua, Mexico City, Los Mochis, Baja. As they left each town, Britt sent her mother reassuring postcards. Realizing her daughter was okay, Britt claims, her mother stopped cooperating with the state police and FBI, which did not have enough conclusive evidence, let alone jurisdiction, to continue an investigation. (Beyond the recollection of a handful of sources, VF could find no evidence of any police or federal investigation, though there is no doubt that laws were broken.)
+
+Mexico remains the romance’s period of paradise. As Michael Cameron describes it, “The two disappeared into love land.” In May 1977, she and McCarthy traveled along the path of Blood Meridian, the novel he was researching at the time and which, though it was published largely to silence in 1985, is now considered one of the greatest novels of the 20th century. 
+
+They began in Juarez and made deep inroads into Chihuahua, Mexico City, Los Mochis, Baja. As they left each town, Britt sent her mother reassuring postcards. Realizing her daughter was okay, Britt claims, her mother stopped cooperating with the state police and FBI, which did not have enough conclusive evidence, let alone jurisdiction, to continue an investigation. (Beyond the recollection of a handful of sources, VF could find no evidence of any police or federal investigation, though there is no doubt that laws were broken.)
+
+
 McCarthy would work in the mornings while Britt attended a traditional Catholic Mass, replete with mantilla headdress, earning the affectionate nicknames “Babushka” and “Baba” from McCarthy. (Many post-Mexico letters open with “Dearest Baba.”) The country was idyllic and paradisiacally cheap, cheap enough for the self-impoverished McCarthy to live like a king and Britt, whose blond hair and pigtails some mesmerized Mexican children had never seen before, like a teenage queen.
+
+
 The two even tried peyote together in Baja, which sent McCarthy on a riff about time and the universe. As a raving McCarthyite with his own quantum thesis about Blood Meridian to corroborate, I asked Britt what he had said. “Well, we had been tripping for hours and the sun had started coming up and he kept going, ‘Time this…’ and ‘Time that…’ and I just turned to him and said, ‘I think it’s time to be quiet.’ And he just about died laughing. He would laugh like this, ‘Oh hoh hoh!’ ”
+
 But all trips must end and all paradises must be lost, and when Britt turned 18 that September 13—the same date on which the calendar stands still in the opening pages of All the Pretty Horses—they spent her birthday in Mexico City and in full legality flew the next day to El Paso. McCarthy would later write, in periods of heartbreak, “Remember that rainy day in Los Mochis?” or of her birthday in Mexico City. They will spend two more of her birthdays together in Los Alamos and Nashville before she will break his heart.
-“So, about those letters,” she says, running her hand along her necklace. “I haven’t read them in decades. They’re really hard for me. I have such a block about them. They did make me feel uncomfortable at the time. Because they were so different from how he talked on the phone, or in person. After living with these creepy men in foster homes, it was such a relief to be with Cormac. I felt safe and secure because he didn’t want anything. He was genuinely interested in me. But then he’d send these letters. And it would be very confusing.”
+
+“So, about those letters,” she says, running her hand along her necklace. “I haven’t read them in decades. They’re really hard for me. I have such a block about them. They did make me feel uncomfortable at the time. 
+
+Because they were so different from how he talked on the phone, or in person. After living with these creepy men in foster homes, it was such a relief to be with Cormac. I felt safe and secure because he didn’t want anything. He was genuinely interested in me. But then he’d send these letters. And it would be very confusing.”
+
 We can expect a writer to be different in person than on the page, but Cormac was very different on the page to Augusta. He was clearly in love, clearly “gone on the subject” of her, from the start. He ends each letter with an “I love you” or something synonymous. (He ends the ones after their romance cooled the same way.) But what we appear to have with lines about pressing “my face between your thighs” is a writer with his nose pressed into the pure perfume between the open thighs of a book.
+
+
 When I ask Britt how she feels about the parental-age gap between them, if the relationship felt in any way like grooming, she acknowledges the age difference will probably come as a shock to many readers, but she never felt that there was anything inappropriate about their relationship. In fact, part of her 47-year reluctance to tell her story is a fear that her relationship with McCarthy, the most important in her life, will be misunderstood by the wider public. “One thing I’m scared about is that he’s not around to defend himself. He saved my life.”
+
+
 By the time they ran away, by the time they consummated, all traces of Britt’s discomfiture with the letters were gone. It was the later years, seeing herself in The Border Trilogy, seeing her depression in The Passenger, that made her half wish she’d cut herself off from him. But neither of them could.
+
+
 We’re outside, trying to puzzle the Catalina Mountains out from the sky. They pitch the lights down here in Tucson at night because of the Kitt Peak National Observatory, but there’s a full moon outfoxing the astronomers tonight, giving the Catalinas so much light to darkle under.
-“But the letters make me sad too,” she says between drags of the Camel Wides cigarettes we just impulsively bought, “because I have so much regret. Such wasted time when we could have been together. When we got back from Mexico in late ’77, when I was 18 and we were living in El Paso, that’s when I found out he was still married to Annie. And then about a year later, on a trip to Las Vegas, when I found out he had a son my age. It just shattered me. What I needed then, so badly, was security and safety and trust. Cormac was my life, my pattern. He was on a pedestal for me. And finding out he lied about those things, they became chinks in the trust.”
+
+
+“But the letters make me sad too,” she says between drags of the Camel Wides cigarettes we just impulsively bought, “because I have so much regret. Such wasted time when we could have been together. When we got back from Mexico in late ’77, when I was 18 and we were living in El Paso, that’s when I found out he was still married to Annie. 
+
+And then about a year later, on a trip to Las Vegas, when I found out he had a son my age. It just shattered me. What I needed then, so badly, was security and safety and trust. Cormac was my life, my pattern. He was on a pedestal for me. And finding out he lied about those things, they became chinks in the trust.”
+
+
 The child Britt refers to is named Chase, originally Cullen, the son from McCarthy’s first marriage, in 1961, to Lee Holleman. McCarthy never spoke publicly about Chase, but Britt says he confided to her (and fictionalized in Suttree) that Holleman’s family detested McCarthy and actually forbade their being together after her pregnancy.
+
+
 Then, in 1966, McCarthy married an English singer named Annie De Lisle. The two never had children, and for the years in which they remained married, De Lisle reportedly referred to Britt as “the other woman.” His second son, John, the inspiration for The Road, would be born to his third wife, Jennifer Winkley, in 1998.
-“And then, when we were in Franklin, Tennessee, with the Kidwells.” This would have been around ’79 or ’80. Britt and McCarthy were much on the move in those post-Mexico years, moving to friend Bill Kidwell’s house in Tennessee when they couldn’t pay rent in El Paso anymore. “Cormac was out pouring concrete with Kidwell and some friends and was supposed to pick me up at a certain time. And when he didn’t show up, I was convinced that he was dead. And I froze. I shut down. And I realized if something ever happened to him, I could survive physically, but I wouldn’t be able to survive emotionally. I wouldn’t be able to survive on my own without him. And that’s not love. That’s not healthy, at least.
-“So when he won the MacArthur grant and had enough money for me to go home and see my family, I just never came back.” McCarthy won the grant, largely due to the patronage of Robert Coles, in 1981. In those pre-digital days, she says, McCarthy’s usual course of action had been to open up bank accounts and blow town when he and Britt had used up all their credit. In fact, a bank statement for “Augusta McCarthy” from 1980 shows a whopping $15 balance. (“That’s the kind of tall cotton we were in,” Britt jokes.) “It wasn’t a choice. I always wanted to be with him. But I had to learn to live by myself before I could be with him again.”
-So the heaps of money won by McCarthy set in motion a train of events that forever parted him romantically from Britt. McCarthy made several trips to Tucson to convince her to come back to El Paso, she says—but she couldn’t bring herself to. Though they would continue to stay in close touch—to varying degrees of intimacy—for the remainder of McCarthy’s life, and McCarthy would later propose marriage twice, according to Britt, they never came back together in full. If one wants to extend the influence of McCarthy’s relationship with Britt onto his fiction, look no further than No Country for Old Men, in which Llewelyn Moss chances upon a satchel full of money, setting in motion a train of events that forever parts him from Carla Jean, who is 16 at the time she marries Llewelyn—the same age as Britt when she met McCarthy—and 19 at the time of the novel. Starting with John Grady Cole and Alejandra in All the Pretty Horses, a love that is a few tragic degrees out of true, McCarthy would spend the last half of his career in equal intimacy with Britt on the page as in life.
+
+
+“And then, when we were in Franklin, Tennessee, with the Kidwells.” This would have been around ’79 or ’80. Britt and McCarthy were much on the move in those post-Mexico years, moving to friend Bill Kidwell’s house in Tennessee when they couldn’t pay rent in El Paso anymore. “Cormac was out pouring concrete with Kidwell and some friends and was supposed to pick me up at a certain time. And when he didn’t show up, I was convinced that he was dead. And I froze. I shut down. And I realized if something ever happened to him, I could survive physically, but I wouldn’t be able to survive emotionally. 
+
+I wouldn’t be able to survive on my own without him. And that’s not love. That’s not healthy, at least.
+
+“So when he won the MacArthur grant and had enough money for me to go home and see my family, I just never came back.” McCarthy won the grant, largely due to the patronage of Robert Coles, in 1981. In those pre-digital days, she says, McCarthy’s usual course of action had been to open up bank accounts and blow town when he and Britt had used up all their credit. 
+
+In fact, a bank statement for “Augusta McCarthy” from 1980 shows a whopping $15 balance. (“That’s the kind of tall cotton we were in,” Britt jokes.) “It wasn’t a choice. I always wanted to be with him. But I had to learn to live by myself before I could be with him again.”
+
+
+So the heaps of money won by McCarthy set in motion a train of events that forever parted him romantically from Britt. McCarthy made several trips to Tucson to convince her to come back to El Paso, she says—but she couldn’t bring herself to. Though they would continue to stay in close touch—to varying degrees of intimacy—for the remainder of McCarthy’s life, and McCarthy would later propose marriage twice, according to Britt, they never came back together in full. 
+
+If one wants to extend the influence of McCarthy’s relationship with Britt onto his fiction, look no further than No Country for Old Men, in which Llewelyn Moss chances upon a satchel full of money, setting in motion a train of events that forever parts him from Carla Jean, who is 16 at the time she marries Llewelyn—the same age as Britt when she met McCarthy—and 19 at the time of the novel. 
+
+Starting with John Grady Cole and Alejandra in All the Pretty Horses, a love that is a few tragic degrees out of true, McCarthy would spend the last half of his career in equal intimacy with Britt on the page as in life.
+
+
 The letters during this period in the early ’80s are buoyant with pain and, McCarthy admits, resentment. “I have to confess that in a way I was hoping that I wouldn’t hear from you anymore,” one begins. “I have to confess too that there are times when I feel enormous resentment toward you […] Baby, there was nothing wrong with our love. You just threw it away […] I never hear that song I don’t start crying, ‘I never got over those blue eyes.’ I make lists of places in the world to go and things to do now that I have no responsibilities, but everything is just empty.”
+
+
 We head back into the house. The windows wear the translucent paint of our reflections.
 “Can I see some of the letters?” She reads through a few, twisting her necklace. “I hate to say it, but…I think Cormac really did love me.” We laugh.
+
+
 “I had no family stability, I was homeless, I was vulnerable, I was young. I mean,” she pauses and screws up her face, “who could blame him?”
+
 I know the muse well enough to identify one of her shock jokes.
+
 “What a groomer!” she says, thrusting her hand up into the air, and busts out laughing.
-There is a sense of heat ripple to the horizons of Britt’s life after the split, the kind of interstitial oblivions between novels in, say, a trilogy. In conversation we pass through gaps of haze and shimmer: She attends the University of Arizona. Plagued by her childhood trauma, she is interred in a psych ward where her uncle gifts her a Catholic medal of Stella Maris, a title for the Virgin Mary referring to her guidance and protection of seafarers. She works at bars, including Someplace Else. She becomes a nurse. She trains horses. She has a short marriage but never a love again like Cormac McCarthy. She deals, for the rest of her life, with severe depression and low self-esteem. She is, in her own words, “a lost soul.”
 
+There is a sense of heat ripple to the horizons of Britt’s life after the split, the kind of interstitial oblivions between novels in, say, a trilogy. In conversation we pass through gaps of haze and shimmer: She attends the University of Arizona. Plagued by her childhood trauma, she is interred in a psych ward where her uncle gifts her a Catholic medal of Stella Maris, a title for the Virgin Mary referring to her guidance and protection of seafarers. 
 
-
+She works at bars, including Someplace Else. She becomes a nurse. She trains horses. She has a short marriage but never a love again like Cormac McCarthy. She deals, for the rest of her life, with severe depression and low self-esteem. She is, in her own words, “a lost soul.”
 
 “She was his muse, throughout. Throughout. She’s Alicia Western! When you saw them together, they were so in love, just so in love with each other. Their time in Mexico was absolutely the inspiration for All the Pretty Horses, that impossible-to-realize love. She was the truest witness of his life.”
 
 
 
-Throughout, she speaks to McCarthy multiple times a week and is visited by him regularly. Then, sometime in the ’80s, McCarthy sends her the manuscript for All the Pretty Horses. “The first thing I see, obviously, is the title. And I thought, Oh my gosh. I started reading it, and it’s just so full of me, and yet isn’t me. It was so confusing. Reading about Blevins getting killed was so sad. I cried for days. And I remember thinking to myself that being such a lover of books, I was surprised it didn’t feel romantic to be written about. I felt kind of violated. All these painful experiences regurgitated and rearranged into fiction. I didn’t know how to talk to Cormac about it because Cormac was the most important person in my life. I wondered, Is that all I was to him, a trainwreck to write about?
+Throughout, she speaks to McCarthy multiple times a week and is visited by him regularly. Then, sometime in the ’80s, McCarthy sends her the manuscript for All the Pretty Horses. “The first thing I see, obviously, is the title. And I thought, Oh my gosh. I started reading it, and it’s just so full of me, and yet isn’t me. It was so confusing. Reading about Blevins getting killed was so sad. 
+
+I cried for days. 
+
+And I remember thinking to myself that being such a lover of books, I was surprised it didn’t feel romantic to be written about. I felt kind of violated. All these painful experiences regurgitated and rearranged into fiction. I didn’t know how to talk to Cormac about it because Cormac was the most important person in my life. I wondered, Is that all I was to him, a trainwreck to write about?
+
+
 “I was trying so hard to grow up and to fix what was broken about me. I still thought I could be fixed. And this felt the opposite of fixing me.
 “Cormac called me and said, ‘What did you think about it?’ And I said, ‘Well, I really liked the book. It’s beautiful. But my kitten, John Grady and everything. It feels weird.’ And he just laughed and said, ‘Well, baby, that’s what I do. I’m a writer.’ ”
 When she broached Blevins’s death and how it made her cry for days, he said, “ ‘I knew you would. And I’m sorry.’ And I said, ‘Well, you could have let him live.’ And he said, ‘No, I really couldn’t.’ And I felt like I was about two years old for asking him this, but I said, ‘Well, you’ll still kill people for me though, right?’ And he said, ‘Yes.’ And that was enough.”
-For the rest of his life, McCarthy would make visits every few months to Tucson and stay at the Arizona Inn. While the visits were made out of love and longing, they were always entangled with what felt to Britt like research. Like an artist visiting his subject for an extended portraiture.
-One year when she was depressed, McCarthy came out and taught her stonemasonry in northern Arizona. Later that year, he sent her a draft of his new play called The Stonemason. When Britt was taming a crazed purebred Babson Arabian at Bazy Tankersley’s horse farm in the ’80s, McCarthy visited to watch her tame it and called her each night on the phone after he’d left to ask her about the horse. McCarthy himself may never have ridden, but the novels of The Border Trilogy teem with intimate knowledge about horses. They teem, too, with other impossible-to-realize 16-year-old love interests, such as Magdalena, the beautiful Mexican prostitute who steals John Grady Cole’s heart in Cities of the Plain. The list goes on, most painfully culminating in her portrayal as Alicia Western in The Passenger, though Britt never suffered from her doppelgänger’s hallucinations.
-Sources close to McCarthy confirmed Britt’s role as his muse and love of his life. Michael Cameron is emphatic about Britt’s inspiration. “She was his muse, throughout. Throughout. She’s Alicia Western! There’s no doubt she was the love of his life and his muse. I mean, when you saw them together, they were so in love, just so in love with each other. Their time in Mexico was absolutely the inspiration for All the Pretty Horses, that impossible-to-realize love. I read one of the first typescripts of it, and I told Cormac it made me cry. There is no doubt about it. Cormac loved her and she was his muse. She was the truest witness of his life.”
 
+
+For the rest of his life, McCarthy would make visits every few months to Tucson and stay at the Arizona Inn. While the visits were made out of love and longing, they were always entangled with what felt to Britt like research. Like an artist visiting his subject for an extended portraiture.
+
+
+One year when she was depressed, McCarthy came out and taught her stonemasonry in northern Arizona. Later that year, he sent her a draft of his new play called The Stonemason. When Britt was taming a crazed purebred Babson Arabian at Bazy Tankersley’s horse farm in the ’80s, McCarthy visited to watch her tame it and called her each night on the phone after he’d left to ask her about the horse. 
+
+
+McCarthy himself may never have ridden, but the novels of The Border Trilogy teem with intimate knowledge about horses. They teem, too, with other impossible-to-realize 16-year-old love interests, such as Magdalena, the beautiful Mexican prostitute who steals John Grady Cole’s heart in Cities of the Plain. The list goes on, most painfully culminating in her portrayal as Alicia Western in The Passenger, though Britt never suffered from her doppelgänger’s hallucinations.
+
+
+Sources close to McCarthy confirmed Britt’s role as his muse and love of his life. Michael Cameron is emphatic about Britt’s inspiration. “She was his muse, throughout. Throughout. She’s Alicia Western! There’s no doubt she was the love of his life and his muse. I mean, when you saw them together, they were so in love, just so in love with each other. Their time in Mexico was absolutely the inspiration for All the Pretty Horses, that impossible-to-realize love. I read one of the first typescripts of it, and I told Cormac it made me cry. There is no doubt about it. Cormac loved her and she was his muse. She was the truest witness of his life.”
 
 
 
@@ -354,34 +427,94 @@ Sources close to McCarthy confirmed Britt’s role as his muse and love of his l
 
 
 
-These fictional uses of her life, however, often led her into deeper depressions, punctuated, she says, by two marriage proposals by McCarthy. The first, at the Gardner Hotel in El Paso, was made several years before McCarthy’s marriage to Jennifer Winkley in 1998. The second, at the Arizona Inn, at the time of McCarthy’s work on the Counselor screenplay. Both times McCarthy got cold feet. The second time he reneged after finding out Britt’s Catholic church in Tucson would not permit a marriage unless McCarthy made a Catholic confession, which he refused to do. The dialogue of his proposal to Britt in the Arizona Inn, she says, is exactly recited by Michael Fassbender and Penélope Cruz in The Counselor, to her shock.
+These fictional uses of her life, however, often led her into deeper depressions, punctuated, she says, by two marriage proposals by McCarthy. The first, at the Gardner Hotel in El Paso, was made several years before McCarthy’s marriage to Jennifer Winkley in 1998. The second, at the Arizona Inn, at the time of McCarthy’s work on the Counselor screenplay. 
+
+
+Both times McCarthy got cold feet. The second time he reneged after finding out Britt’s Catholic church in Tucson would not permit a marriage unless McCarthy made a Catholic confession, which he refused to do. The dialogue of his proposal to Britt in the Arizona Inn, she says, is exactly recited by Michael Fassbender and Penélope Cruz in The Counselor, to her shock.
+
+
 “I intend to love you until I die,” Fassbender says. “Me first,” Cruz replies.
-Outside of her time with McCarthy, it is difficult for Britt to give her life artistic resolution. Starting with All the Pretty Horses, she would look to McCarthy for that. “I always looked to Cormac’s books to see how I was doing.” She takes a comedic beat. “Which was usually dead.” In chronological order we have, at the very least: Harrogate, Wanda, John Grady Cole, Blevins, Alejandra, Magdalena, Carla Jean, Laura, and Alicia—who is dead of suicide in the opening italics of The Passenger. Only Harrogate seemingly makes it out alive, with his face averted into his own pale reflection in the train window taking him out of the novel. That sheer, ghostly reflection—in a sense, it’s how Britt sees herself in McCarthy’s mirrory prose, a ghost rising from the characters, the situations, the deaths, a ghost gaining some momentary purchase on herself. Her mission from the age of 11 was to be good, to survive, and yet McCarthy kept killing her. “I thought he must not believe in me,” she says. “It’s taken me decades to realize that maybe what he was doing was killing off what had happened to me. Killing off the darkness.”
-A strange thing happens in McCarthy’s body of work after meeting Britt. It is visible at the tail end of Blood Meridian. Morality, not to mention commercial success, starts coming into focus. His worlds are still cruel and full of evil, but he begins writing about characters who display courage in the face of it, who, like Britt “try to be good.” Emulous characters, heroes even, who, beginning with the Kid in Blood Meridian, “had got onto terms with life beyond what his years could account for.” The person, the spirit he’s writing about, is Augusta Britt. Like Britt, his characters are “placed under an obligation. To survive and bear these trials with grace and dignity.” McCarthy would often tell his son John, when speaking of his own cold family and violently abusive father who would savagely beat him as a child, “ ‘The difference between you and me is that you were born a good person,’ ” John recounts to me. “ ‘I had to work hard to become one.’ ” If we take McCarthy’s fiction as a measure, being a good person seems much on his mind starting with All the Pretty Horses, the first of his works brimming in Augustal colors, created in that artistic wiggle room between frisson and fission. Being a good person seemed to be on his mind, too, when he took Britt, a victim of worse male violence than he was, away from the streets of Tucson.
+
+
+Outside of her time with McCarthy, it is difficult for Britt to give her life artistic resolution. Starting with All the Pretty Horses, she would look to McCarthy for that. “I always looked to Cormac’s books to see how I was doing.” She takes a comedic beat. “Which was usually dead.” In chronological order we have, at the very least: Harrogate, Wanda, John Grady Cole, Blevins, Alejandra, Magdalena, Carla Jean, Laura, and Alicia—who is dead of suicide in the opening italics of The Passenger. 
+
+Only Harrogate seemingly makes it out alive, with his face averted into his own pale reflection in the train window taking him out of the novel. 
+
+That sheer, ghostly reflection—in a sense, it’s how Britt sees herself in McCarthy’s mirrory prose, a ghost rising from the characters, the situations, the deaths, a ghost gaining some momentary purchase on herself. Her mission from the age of 11 was to be good, to survive, and yet McCarthy kept killing her. “I thought he must not believe in me,” she says. 
+
+“It’s taken me decades to realize that maybe what he was doing was killing off what had happened to me. Killing off the darkness.”
+
+
+A strange thing happens in McCarthy’s body of work after meeting Britt. It is visible at the tail end of Blood Meridian. Morality, not to mention commercial success, starts coming into focus. His worlds are still cruel and full of evil, but he begins writing about characters who display courage in the face of it, who, like Britt “try to be good.” Emulous characters, heroes even, who, beginning with the Kid in Blood Meridian, “had got onto terms with life beyond what his years could account for.” The person, the spirit he’s writing about, is Augusta Britt. Like Britt, his characters are “placed under an obligation. To survive and bear these trials with grace and dignity.” 
+
+McCarthy would often tell his son John, when speaking of his own cold family and violently abusive father who would savagely beat him as a child, “ ‘The difference between you and me is that you were born a good person,’ ” John recounts to me. “ ‘I had to work hard to become one.’ ” If we take McCarthy’s fiction as a measure, being a good person seems much on his mind starting with All the Pretty Horses, the first of his works brimming in Augustal colors, created in that artistic wiggle room between frisson and fission. Being a good person seemed to be on his mind, too, when he took Britt, a victim of worse male violence than he was, away from the streets of Tucson.
+
+
 But as his characters started becoming better humans, in Britt’s view, McCarthy, whom she always thought of as a great man, did not. As he dined with celebrities and reinvented himself in Santa Fe as a formidable intellectual—and a very rare intellectual: one who can learnedly contemplate quantum physics and work it into art, with mixed success—Britt thought he turned his back on his oldest friends.
-“He felt he’d wasted the last years of his life,” Britt says. We’re up early enough to watch the sun unbraid the first permissive stars. Right before dawn the mountains look soft as dressfolds, and Britt is playing with the hem of her denim shirt. “He felt slightly exploited by the Institute crowd, and I never saw him cry, but we spent a few nights up in Globe together, right before he got really sick, and it was snowing and he started to get teary-eyed, and he told me he regretted all the years not being together.” McCarthy would go on to name Britt in his will, along with ex-wives Jennifer Winkley and Annie De Lisle, youngest son John McCarthy, and Chase McCarthy, whom he managed to fully reconcile with in his last years. John and his mother, Jennifer, cared for McCarthy in his final years and were there with Chase the day McCarthy died. The last words on his Olivetti Lettera typewriter read, “I don’t know, Frank, I say we just leave him hangin’ there.”
+
+
+“He felt he’d wasted the last years of his life,” Britt says. We’re up early enough to watch the sun unbraid the first permissive stars. Right before dawn the mountains look soft as dressfolds, and Britt is playing with the hem of her denim shirt. “He felt slightly exploited by the Institute crowd, and I never saw him cry, but we spent a few nights up in Globe together, right before he got really sick, and it was snowing and he started to get teary-eyed, and he told me he regretted all the years not being together.” 
+
+McCarthy would go on to name Britt in his will, along with ex-wives Jennifer Winkley and Annie De Lisle, youngest son John McCarthy, and Chase McCarthy, whom he managed to fully reconcile with in his last years. 
+
+John and his mother, Jennifer, cared for McCarthy in his final years and were there with Chase the day McCarthy died. The last words on his Olivetti Lettera typewriter read, “I don’t know, Frank, I say we just leave him hangin’ there.”
+
+
 There is no gentle summer rain in Arizona. No poised and delicate thunderheads. Storms come with the shock and awe of violent reprisals. By the time you hear the dramatic throat clear of thunder, hail the size of baseballs is upon you. Seeing as it’s supposed to rain later in the day, Britt and I are heading over to the stalls to do as much as we can.
+
+
 “All horses have two sides. Well, that’s a smart thing to say, of course they do,” she laughs, throwing her hands up in playful self-mockery. “But they have two sides to their brains, and they think and react differently on each side. The right side can spook at something that the left side walks by calmly every day. So that’s to say, you want to put the halter on on their left side. Here, you try.”
+
+
 Unless I’m unusually timid, waltzing up to a horse I’ve never met before with daring nonchalance strikes me as a great way to get my head stove in, so I’ve been giving Scout a courteous distance. But Britt holds the looped purple halter out to me, inviting me closer.
 “Oh, and don’t ever put your head above a horse’s. Horses have the quickest reaction time of any animal, faster than cats. They won’t ever mean to, but they can startle and raise their head so fast, it can knock you out or even kill you. So, no pressure.”
-To tie a halter hitch, you’ve got to hug a horse. So I do, standing in the same direction as Scout and pulling the halter over his Roman nose until my right arm is gently wrapped under his neck. Lightly flicking the rope over the top of his head, our eyes are momentarily twinned in the same direction. There is an immaculate, glistening precision in the reflection of a horse’s eye. The level of detail is startling and strikes one at first, brimming over the pupils, of artistic imprecision, creative license. I can see the muse in it—the woman who taught Cormac McCarthy everything he knew about horses—smiling at me with a child’s wise innocence, and I shyly try the hitch, looping and cinching the purple.
+
+
+To tie a halter hitch, you’ve got to hug a horse. So I do, standing in the same direction as Scout and pulling the halter over his Roman nose until my right arm is gently wrapped under his neck. Lightly flicking the rope over the top of his head, our eyes are momentarily twinned in the same direction. 
+
+There is an immaculate, glistening precision in the reflection of a horse’s eye. The level of detail is startling and strikes one at first, brimming over the pupils, of artistic imprecision, creative license. I can see the muse in it—the woman who taught Cormac McCarthy everything he knew about horses—smiling at me with a child’s wise innocence, and I shyly try the hitch, looping and cinching the purple.
+
+
 “I’ve been so afraid to tell my story,” Britt tells me. “It feels like I’m being disloyal to Cormac. I’ve always wondered, too, who would believe me. I guess I’m just more private than him. But he would always warn me that at some point his archives would open up and people would find out about me.”
+
+
 Britt is correct; in the fall of 2025, the second half of McCarthy’s archives, likely containing her letters to him, will become public at Texas State University.
-“I know we joke around, calling Cormac a groomer,” she can’t help but crack a quick smile here before turning serious, “but that’s a defense mechanism of mine. I loved him more than anything. He kept me safe, gave me protection. He was everything to me. Everything. He was my anchor. He was my world. He was my home, even when we didn’t live together anymore. Those things that happen to you, that young and that awful, you don’t really heal. You just patch yourself up the best you can and move on. And Cormac gave me protection and safety when I had none. I would be dead if I didn’t meet him. He was the most important person in my life, the person I love the most. He was my anchor. And now that he’s gone,” she pauses, “I’m shiftless.”
+
+
+“I know we joke around, calling Cormac a groomer,” she can’t help but crack a quick smile here before turning serious, “but that’s a defense mechanism of mine. I loved him more than anything. He kept me safe, gave me protection. He was everything to me. Everything. He was my anchor. He was my world. 
+
+He was my home, even when we didn’t live together anymore. Those things that happen to you, that young and that awful, you don’t really heal. You just patch yourself up the best you can and move on. And Cormac gave me protection and safety when I had none. I would be dead if I didn’t meet him. He was the most important person in my life, the person I love the most. He was my anchor. And now that he’s gone,” she pauses, “I’m shiftless.”
+
+
 Two eyes are not sufficient for a sunset in the West. That’s because there is more than one sunset, more than can be seen in a single field of vision. After a monsoon, the sky is Sistine. To the west, lightning races the tousled embroidery of clouds in pink gilt. Turning on my heels, there are Iliads and Edens of violet cloudwork parted by the slimmest blue streamlets of sky. Soon the mountains will be darkened and skimmed of all their reddened lilac, and they will stand like glowing geometry against the sunset’s final yellow. It is all daubed in a nimbus around the muse, like a painting that is still wet, still open to being blended.
+
+
 I keep touching the Stella Maris medal in my pocket, which Augusta gave me earlier this morning, trying to keep track of all that loosened paint. She sidles up to me.
+
 “You know, I had a dream about Cormac last night.”
+
 “Tell me about it.”
-“So, the town I grew up in, in North Dakota, had these big dikes by the Red River. We used to play there as kids. Back in the late ’90s, the whole town flooded. A biblical kind of flood. The flood set off electrical fires, so whatever wasn’t underwater caught on fire. I was at those dikes in my dream. And it was right before dawn. And it was so dark, and it was so hard to keep going. I felt that the bad men were coming. I didn’t want to keep going anymore. And I decided I was just gonna sit down and die.” She laughs at herself. “It couldn’t be more simple, you just sit down and die! Isn’t that how everyone does it?
+
+“So, the town I grew up in, in North Dakota, had these big dikes by the Red River. We used to play there as kids. Back in the late ’90s, the whole town flooded. A biblical kind of flood. The flood set off electrical fires, so whatever wasn’t underwater caught on fire. I was at those dikes in my dream. And it was right before dawn. And it was so dark, and it was so hard to keep going. I felt that the bad men were coming. I didn’t want to keep going anymore. 
+
+And I decided I was just gonna sit down and die.” She laughs at herself. “It couldn’t be more simple, you just sit down and die! Isn’t that how everyone does it?
 “But anyways, as soon as I sat down, I noticed someone else was there. I looked up and it was Cormac. And he said, ‘What’re you doin’ over there, Baba?’ ”
+
 “And I told him. ‘I’m sitting down.’ ”
+
 “ ‘Why are you sitting down?’ ”
+
 “ ‘So I can die.’ ”
+
 “ ‘Well, don’t do that.’ ”
+
 “ ‘Why not?’ ”
+
 “And there were all these sections of color in the sky. Like stained glass. Dawn was coming. And he was standing on the other side of the dikes, under the color.”
 “ ‘Why don’t you come over here, where I am?’ ” he said.
+
 “And I didn’t know what to do. And then I woke up.”
+
 “Well, I think you do know what you have to do,” I said, turning up my collar.
 She took a moment, looking at me under that stained glass Western sky. “That’s right,” she smiled. And she thrust her hand out before her, the way McCarthy would have. “Walk on.”
 
