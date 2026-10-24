@@ -2,9 +2,6 @@
 Last evening we went to the Cormac event at OSU and the author of his latest
 biography gave a talk.
 
-- [Cormac McCarthy: A Legacy Revisited, by Tracy Daugherty](https://tracydaugherty.com/nonfiction/cormac-mccarthy-a-legacy-revisited/)
-- [Internet archive of the NYT Book Review](https://archive.ph/77Goz)
-
 It turns out the evening turned into quite an affair for many reasons
 and the author of the book, as noted in the NYT book review was himself
 a character in many ways.
@@ -65,6 +62,15 @@ At the end of the talk by Tracy and before handing it over to the audience
 for questions he let the audience know that a special guest was here and
 none other than the editor of Cormacs books.
 
+Gary too was quite the character.
+
+He told us how one time while he was editing a book by Cormac that he told Cormac
+that he was inconsistent in how he wrote `1874` because sometime he would spell
+out eighteen seventy four and sometimes he would not and Gary said to Cormac what
+should we do to be consistent ?
+
+And Cormac said write all of the dates out by hand :)
+
 - [Gary Google Images](https://www.google.com/search?q=gary+fisketjon+cormac+mccarthy&sca_esv=566ea099c7fe4e0b&sxsrf=APpeQnu30sysug2qne6D4Pq4PnrwcYg49w:1792855831005&source=hp&biw=1462&bih=793&ei=Fs_cas2bOtT00PEP4M2IuQU&iflsig=ABILxe8AAAAAatzdJ740dRK77npgptfE9x3SNEd6eGMg&oq=Gary+Fisketjon&gs_lp=EgNpbWciDkdhcnkgRmlza2V0am9uKgYIAxgeGBMyBxAAGIAEGBMyBxAAGIAEGBMyBhAAGB4YEzIGEAAYHhgTMgYQABgeGBNIuC9QAFgAcAB4AJABAJgBN6ABN6oBATG4AQHIAQD4AQL4AQGKAgtnd3Mtd2l6LWltZ5gCAaACPJgDAJIHATGgB64CsgcBMbgHPMIHAzItMcgHA4AIAQ&sclient=img&udm=2)
 - [Gary Fisketjon](https://ashcarter.substack.com/p/the-rise-fall-and-return-of-gary)
 - [Gary Wikipedia](https://en.wikipedia.org/wiki/Gary_Fisketjon)
@@ -99,10 +105,19 @@ Mike Parker told me he will check it out on Monday but he knew what I was talkin
 about because he believes the mics are not calibrated properly and he will attempt
 to bring this to the attention of the audio folks who do the interviews.
 
-### References
+### Tracy Book Reviews
+
+- [Cormac McCarthy: A Legacy Revisited, by Tracy Daugherty](https://tracydaugherty.com/nonfiction/cormac-mccarthy-a-legacy-revisited/)
+- [Internet archive of the NYT Book Review](https://archive.ph/77Goz)
+- [Wall Street Journal](https://archive.ph/4k5Ro)
+
+### Obituaries
 
 - [Cormac Obit - NYT](https://archive.ph/NbGhr)
 - [Cormac Obit - Santa Fe Institute](https://www.santafe.edu/news-center/news/memoriam-cormac-mccarthy)
+
+### Other pieces about Cormac
+
 - [Smithsonian](https://www.smithsonianmag.com/arts-culture/two-years-cormac-mccarthys-death-rare-access-to-personal-library-reveals-man-behind-myth-180987150/)
 - [Vanity Fair](https://archive.ph/dGw5E)
-
+- [Oprah inteview](https://www.youtube.com/watch?v=y3kpzuk1Y8I)
