@@ -11,9 +11,9 @@ a character in many ways.
 
 As noted in the book review
 
-```rust
-On the downside, it’s hampered by consistent intrusions of flowery language, as if the biographer got too excited and tried to compete with his subject. 
-```
+
+> On the downside, it’s hampered by consistent intrusions of flowery language, as if the biographer got too excited and tried to compete with his subject. 
+
 
 And that is why the talk last night was so good.  Because Tracy really got into
 his subject not only when he read the book but how he showed us his sketch book
@@ -23,9 +23,8 @@ At the end of the event I asked the second question:
 
 "How many people who Cormac knew well were you able to speak with"
 
-```rust
-It also imparts the slightly hollow sense that for every person willing to talk with Daugherty, 10 hung up the phone.
-```
+> It also imparts the slightly hollow sense that for every person willing to talk with Daugherty, 10 hung up the phone.
+
 
 And his response was in line with the above quote from the book review.
 
