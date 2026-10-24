@@ -12,7 +12,7 @@ a character in many ways.
 As noted in the book review
 
 
-> On the downside, it’s hampered by consistent intrusions of flowery language, as if the biographer got too excited and tried to compete with his subject. 
+> On the downside, the book is hampered by consistent intrusions of flowery language, as if the biographer got too excited and tried to compete with his subject. 
 
 
 And that is why the talk last night was so good.  Because Tracy really got into
