@@ -68,6 +68,7 @@ none other than the editor of Cormacs books.
 
 - [Gary Google Images](https://www.google.com/search?q=gary+fisketjon+cormac+mccarthy&sca_esv=566ea099c7fe4e0b&sxsrf=APpeQnu30sysug2qne6D4Pq4PnrwcYg49w:1792855831005&source=hp&biw=1462&bih=793&ei=Fs_cas2bOtT00PEP4M2IuQU&iflsig=ABILxe8AAAAAatzdJ740dRK77npgptfE9x3SNEd6eGMg&oq=Gary+Fisketjon&gs_lp=EgNpbWciDkdhcnkgRmlza2V0am9uKgYIAxgeGBMyBxAAGIAEGBMyBxAAGIAEGBMyBhAAGB4YEzIGEAAYHhgTMgYQABgeGBNIuC9QAFgAcAB4AJABAJgBN6ABN6oBATG4AQHIAQD4AQL4AQGKAgtnd3Mtd2l6LWltZ5gCAaACPJgDAJIHATGgB64CsgcBMbgHPMIHAzItMcgHA4AIAQ&sclient=img&udm=2)
 - [Gary Fisketjon](https://ashcarter.substack.com/p/the-rise-fall-and-return-of-gary)
+- [Gary Wikipedia](https://en.wikipedia.org/wiki/Gary_Fisketjon)
 
 Gary Fisketjon was Cormac McCarthy's longtime editor at Alfred A. Knopf.
 
