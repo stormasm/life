@@ -105,6 +105,24 @@ Mike Parker told me he will check it out on Monday but he knew what I was talkin
 about because he believes the mics are not calibrated properly and he will attempt
 to bring this to the attention of the audio folks who do the interviews.
 
+### PS
+
+It turns out that both of the `famous` people in the room were from Oregon.
+
+Tracy lives a few blocks down the street from OSU campus and Gary lives in Salem.
+
+So that made the event last evening more special.  Knowing that I could possibly
+bump into Tracy sometime walking around town or campus.
+
+After the talk was over and everyone had cleared out there were only a few
+people remaining.  Everyone's books had been signed and they were turning off
+the lights so to speak I got to speak briefly with Tracy.
+
+I told him I did not think the Vanity Fair article would get in the way of
+Cormac's legacy and he basically agreed.  That was also noted in other places
+saying that great artists through out the course of human history are noted for
+their work --- not for the personal preferences they choose along the way in their life. 
+
 ### Tracy Book Reviews
 
 - [Cormac McCarthy: A Legacy Revisited, by Tracy Daugherty](https://tracydaugherty.com/nonfiction/cormac-mccarthy-a-legacy-revisited/)
@@ -121,3 +139,7 @@ to bring this to the attention of the audio folks who do the interviews.
 - [Smithsonian](https://www.smithsonianmag.com/arts-culture/two-years-cormac-mccarthys-death-rare-access-to-personal-library-reveals-man-behind-myth-180987150/)
 - [Vanity Fair](https://archive.ph/dGw5E)
 - [Oprah inteview](https://www.youtube.com/watch?v=y3kpzuk1Y8I)
+
+Tracy did get to the visit the Santa Fe Institute but he did not have the opportunity to speak with John Miller.
+
+John Miller was partially responsible for Cormac's typewriter story.
