@@ -108,7 +108,7 @@ to bring this to the attention of the audio folks who do the interviews.
 ### Tracy Book Reviews
 
 - [Cormac McCarthy: A Legacy Revisited, by Tracy Daugherty](https://tracydaugherty.com/nonfiction/cormac-mccarthy-a-legacy-revisited/)
-- [Internet archive of the NYT Book Review](https://archive.ph/77Goz)
+- [New York Times](https://archive.ph/77Goz)
 - [Wall Street Journal](https://archive.ph/4k5Ro)
 
 ### Obituaries
