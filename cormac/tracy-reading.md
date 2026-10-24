@@ -40,6 +40,41 @@ Kind of reminiscent of life in general how we do not even really know ourselves
 very well and that our actions and ways of doing things are decoupled from
 how we perceive ourselves.
 
+Through out the evening Tracy continued to emphasize a lot of points about
+being a writer and what it takes to write well.
+
+Although the talk was about Cormac, Tracy took a lot of time at the beginning
+of the talk to talk about writing in general.
+
+He said that writing is a very physical activity even though people think
+of it as a pure mental activity.  He said the best writers probably see
+the physical aspect of the writing more importantly.  He showed us his
+sketch book and how the movement of the hands etc. was important.
+
+For me, its more about how creative people in general get their best
+ideas and thoughts when they are not actually sitting there writing
+but more so going for long hikes in the woods or in your meditation as
+you walk around your neighborhood etc.
+
+That happened to me yesterday.  I was working on a problem and Hb and
+I went out for a walk and I came home and wrote down the ideas that I 
+discovered `along the way` and that was what got printed so to speak.
+
+### Gary Fisketjon
+
+At the end of the talk by Tracy and before handing it over to the audience
+for questions he let the audience know that a special guest was here and
+none other than the editor of Cormacs books.
+
+- [Gary Google Images](https://www.google.com/search?q=gary+fisketjon+cormac+mccarthy&sca_esv=566ea099c7fe4e0b&sxsrf=APpeQnu30sysug2qne6D4Pq4PnrwcYg49w:1792855831005&source=hp&biw=1462&bih=793&ei=Fs_cas2bOtT00PEP4M2IuQU&iflsig=ABILxe8AAAAAatzdJ740dRK77npgptfE9x3SNEd6eGMg&oq=Gary+Fisketjon&gs_lp=EgNpbWciDkdhcnkgRmlza2V0am9uKgYIAxgeGBMyBxAAGIAEGBMyBxAAGIAEGBMyBhAAGB4YEzIGEAAYHhgTMgYQABgeGBNIuC9QAFgAcAB4AJABAJgBN6ABN6oBATG4AQHIAQD4AQL4AQGKAgtnd3Mtd2l6LWltZ5gCAaACPJgDAJIHATGgB64CsgcBMbgHPMIHAzItMcgHA4AIAQ&sclient=img&udm=2)
+- [Gary Fisketjon](https://ashcarter.substack.com/p/the-rise-fall-and-return-of-gary)
+
+Gary Fisketjon was Cormac McCarthy's longtime editor at Alfred A. Knopf.
+
+Taking Over at Knopf: McCarthy was previously edited by Albert Erskine at Random House. After Erskine retired, McCarthy began working with Gary Fisketjon, who joined Knopf as editor-at-large in 1990.   
+
+Works Edited: Fisketjon edited major works in McCarthy’s career, beginning with the breakthrough success of All the Pretty Horses (1992). He went on to edit the remainder of The Border Trilogy (The Crossing and Cities of the Plain), as well as No Country for Old Men and The Road
+
 ### Mike Parker
 
 This year I have really got into Beavers Football and along with that listening
