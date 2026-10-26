@@ -25,11 +25,9 @@ Kenneth’s son, who grows up hunting and trapping illegally, forms an accidenta
 • Southern Gothic & Faulknerian Influence: Critics heavily noted William Faulkner's influence in McCarthy's dense, rhythmic prose, non-linear timeline, and atmospheric focus on decay and isolation.
 • Elliptical Narrative: The plot unfolds through fragmented perspectives, sparse dialogue hidden inside heavy exposition, and phonetic spellings of regional Tennessee speech.
 
-
-
-
-
 ### References
 
 - [ebsco](https://www.ebsco.com/research-starters/literature-and-writing/orchard-keeper-cormac-mccarthy/)
 - [wikipedia](https://en.wikipedia.org/wiki/The_Orchard_Keeper)
+- [dead end follies](https://www.deadendfollies.com/blog/book-review-cormac-mccarhty-orchard-keeper)
+- [grand hotel abyss](https://grandhotelabyss.substack.com/p/cormac-mccarthy-the-orchard-keeper)
