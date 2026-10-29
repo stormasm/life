@@ -16,14 +16,14 @@ Kenneth’s son, who grows up hunting and trapping illegally, forms an accidenta
 
 ### Key Themes
 
-• Cyclical Violence and Original Sin: Violence passes from generation to generation, and characters are trapped in moral entanglements they do not fully understand (such as Marion mentoring the son of the man he killed).
-• Nature vs. Modernity: The novel laments the fading of the old Appalachian frontier under the pressure of industrialization, government intrusion (such as the TVA and state mandates), and capitalism.
-• Flawed Paternal Figures: Traditional fatherhood breaks down or is absent, leaving the young protagonist (John Wesley) to find guidance among damaged outlaws and hermits.
+- Cyclical Violence and Original Sin: Violence passes from generation to generation, and characters are trapped in moral entanglements they do not fully understand (such as Marion mentoring the son of the man he killed).
+- Nature vs. Modernity: The novel laments the fading of the old Appalachian frontier under the pressure of industrialization, government intrusion (such as the TVA and state mandates), and capitalism.
+- Flawed Paternal Figures: Traditional fatherhood breaks down or is absent, leaving the young protagonist (John Wesley) to find guidance among damaged outlaws and hermits.
 
 ### Literary Style
 
-• Southern Gothic & Faulknerian Influence: Critics heavily noted William Faulkner's influence in McCarthy's dense, rhythmic prose, non-linear timeline, and atmospheric focus on decay and isolation.
-• Elliptical Narrative: The plot unfolds through fragmented perspectives, sparse dialogue hidden inside heavy exposition, and phonetic spellings of regional Tennessee speech.
+- Southern Gothic & Faulknerian Influence: Critics heavily noted William Faulkner's influence in McCarthy's dense, rhythmic prose, non-linear timeline, and atmospheric focus on decay and isolation.
+- Elliptical Narrative: The plot unfolds through fragmented perspectives, sparse dialogue hidden inside heavy exposition, and phonetic spellings of regional Tennessee speech.
 
 ### References
 
