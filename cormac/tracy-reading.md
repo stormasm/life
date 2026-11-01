@@ -1,13 +1,17 @@
 
-Last evening we went to the Cormac event at OSU and the author of his latest
-biography gave a talk.
+### Friday October 23, 2026
+
+Last evening we went to the Cormac event at OSU and
+[Tracy Daugherty](https://en.wikipedia.org/wiki/Tracy_Daugherty)
+gave a talk about his latest
+biography 
+`Cormac McCarthy: A Legacy Revisited (October 2026)`.
 
 It turns out the evening turned into quite an affair for many reasons
 and the author of the book, as noted in the NYT book review was himself
 a character in many ways.
 
 As noted in the book review
-
 
 > On the downside, the book is hampered by consistent intrusions of flowery language, as if the biographer got too excited and tried to compete with his subject. 
 
