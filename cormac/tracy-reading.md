@@ -3,8 +3,8 @@
 
 Last evening we went to the Cormac event at OSU and
 [Tracy Daugherty](https://en.wikipedia.org/wiki/Tracy_Daugherty)
-gave a talk about his latest
-biography 
+gave a talk about his latest biography
+
 `Cormac McCarthy: A Legacy Revisited (October 2026)`.
 
 It turns out the evening turned into quite an affair for many reasons
