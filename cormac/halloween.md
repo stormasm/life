@@ -1,7 +1,7 @@
 
 ### Halloween 2026
 
-This was written two weeks after this [reading by tracy](./../tracy-reading.md)
+This was written two weeks after this [reading by tracy](./tracy-reading.md)
 
 By Sam Buntz
 
