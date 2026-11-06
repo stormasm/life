@@ -1,0 +1,29 @@
+
+
+Tracy Daugherty’s biography dismantles the legend of the solitary, blood-soaked gunslinger and finds a writer shaped by privilege, patronage and literary connections
+
+Boyd Tonkin
+
+In 1995, as his Border Trilogy turned Cormac McCarthy from obscure cult author to celebrity bestseller, a magazine published a cartoon of two smart ladies taking tea. One regrets that a romance has failed because her beau proved to be “too much Cormac McCarthy and not enough Ralph Lauren”.   
+
+Tracy Daugherty’s biography of the writer who transformed America’s legacy of violence into sanguinary parables of curse and quest shows that its subject always had his Ralph Lauren side. Son of a Yale-trained Rhode Island lawyer from an Irish family, young Cormac (originally Charles, like his father) cushioned early years of literary struggle with a string of generous fellowships and stipends. They culminated, in 1981, with a $236,000 “genius grant” from the MacArthur Foundation. Even before his early-1990s breakthrough, when his corporate publishing champions helped change “a sea of dismal numbers” into a tide of acclaim, he was “much more of a literary insider” than most of his peers, Daugherty writes. 
+
+He had lived among artists on Ibiza with his second wife: Annie DeLisle, a dancer from Hampshire. Almost from his debut (The Orchard Keeper in 1965), the big beasts of American letters — notably Saul Bellow, awed by his protégé’s “life-giving and death-dealing sentences” — had his back. For sure, McCarthy partied hard, broke rules, and hung out with barhopping hell-raisers in Tennessee and Texas. Still, the only person he ever shot was himself — by accident. Never “a lone horseman on the horizon”, as the later myth would suggest, this cosplay cowboy no more sprang from the gore and grit of the Old West than did Woody in Toy Story.
+
+None of that invalidates the work. Born in 1933, raised in the South (Charles senior moved to Knoxville in 1935 as a counsel for the Tennessee Valley Authority), Cormac became an “assimilated Westerner”. In the 1970s, he fled Tennessee, and his second marriage, to settle in El Paso on the Texas-Mexico border. That corpse-strewn frontier, and the deserts of New Mexico, supplied the bleak mineral backdrops for his later novels. In “timeless epic diction”, Daugherty writes, they present “trials barely endured in a wasteland” as bloody evidence of metaphysical evil. With their “booming oracular voice” and cosmic frames of reference, books such as Blood Meridian, All the Pretty Horses, No Country for Old Men and his dystopia The Road crashed into the literary scene like stampeding steers.
+
+McCarthy died, aged 89, in 2023. The voracious autodidact spent much of his later life “schmoozing with scientists” at the interdisciplinary Santa Fe Institute in New Mexico. Daugherty’s unofficial biography — which has beaten an authorised life, by Laurence Gonzales, to publication — explains that science and its ethical showdowns topped and tailed his career. As TVA attorney, Charles senior had displaced thousands of rural folk to make way for hydroelectric projects. That paternal sin haunted his son. Their early rift never healed. 
+
+Dam-driven power fed the nearby military installation at Oak Ridge. It shipped enriched uranium to the wartime Manhattan Project at Los Alamos, and so nourished the atomic bomb. “Secrecy — and deception — had enveloped the region like mist rolling down a mountain,” writes Daugherty. For McCarthy, wholesale annihilation fuelled by science shadows the ancient retail carnage practised by his mounted mavericks. He imagines a west “colonised by the forces of the bomb”. Yet, to the end, he craved “a marriage of science and humanism”, befriending figures such as Nobel Prize-winning particle physicist Murray Gell-Mann and environmentalist Roger Payne.
+
+Order battles — and succumbs to — chaos in his work. As it often did in his personal life. Daugherty tracks three broken marriages and two widely spaced sons. One, Cullen, he in effect abandoned. The cherished second, John Francis, lies behind the desperate tenderness of father for child as they roam the apocalyptic wilderness of The Road. 
+
+As a 2024 Vanity Fair exposé revealed, McCarthy began a relationship with a troubled 16-year-old, Augusta Britt in the mid-70s, Did he groom this “secret muse”? Daugherty reserves judgment (or perches on the fence). The affair did settle into a close 40-year friendship. Britt’s comments — in a 2023 online post — offer some of the sharpest judgments in this book. For her, the Santa Fe years of “fancy superficial friends . . . killed the Cormac I knew”, as the prophet “lost much of his compassion and kindness”. The grizzled sage in cowboy boots lived “in majestic splendour but enjoying none of it”. 
+
+Such frankness blows in like a blast of fresh desert wind. Daugherty tells a salty yarn, dives deep into McCarthy’s milieu, and conjures places with poetic relish. This still feels like an interim biography: hedged, cagey, covering its gaps with enjoyably purple prose.
+
+McCarthy loved to fix up wrecked cars and trucks. An “expert mechanic” in fiction as well, he “raided the gears of familiar literary models” (above all, “boys’ adventure stories”) to build his fearsome vehicles. Did they ever manage to join American slaughter past and present — the violence of the Alamo, and the violence of Los Alamos — into a coherent whole? Daugherty won’t quite say. McCarthy’s current and future readers will decide. 
+
+Cormac McCarthy: a Legacy Revisited by Tracy Daugherty St Martin’s Press £29.99/$35, 528 pages
+
+- [Cormac McCarthy: A Legacy Revisited — the making of a myth](https://www.ft.com/content/5e49f0f3-f66e-44fd-989a-c1fdeec9b433)
