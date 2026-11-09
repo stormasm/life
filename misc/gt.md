@@ -9,7 +9,7 @@ by Brad Fuqua, Philomath News
 
 May 30, 2026
 
-fter nearly 40 years of growing organic vegetables along Grange Hall Road, John Eveland is ready to pass the carrot — he just wants to make sure the right hands are there to catch it.
+After nearly 40 years of growing organic vegetables along Grange Hall Road, John Eveland is ready to pass the carrot — he just wants to make sure the right hands are there to catch it.
 
 “There’s been some definite sadness and some tears have flowed,” Eveland said Friday. “I mean, it’s something we put ourselves into really completely for decades now.”
 
